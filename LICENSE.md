@@ -1,4 +1,4 @@
-# 
+# smart dydx trading bot | flash-loan-integration + staking-integration offers the most advanced dydx trading bot, with flash-loan-integration and staking-integration. Ideal for
 
 
 
